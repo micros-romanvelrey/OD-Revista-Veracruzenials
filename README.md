@@ -43,4 +43,5 @@ Estas imágenes fueron generadas como parte del proceso de investigación y son 
 
 📫 Para más información sobre este trabajo, proyectos relacionados o colaboraciones, no dudes en contactarme.
 
+![Pagina1](images/REVISTA VERACRUZENIALS 7ma EDICIαN-15-17_page-0001.jpg)
 
